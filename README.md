@@ -1,1 +1,1 @@
-# rsschool-cv
+My CV: [https://kuroiumi0409.github.io/rsschool-cv/cv](https://kuroiumi0409.github.io/rsschool-cv/cv)
